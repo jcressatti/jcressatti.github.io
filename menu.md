@@ -23,7 +23,7 @@
 	- **Dessert:** Apple Pie
 
 #### **Sunday**
-	- **Breakfast**
+- **Breakfast**
 	- **Main:** Bagels and Toast
 	- **Sides:** Yogurt, fresh fruit
 	- **Beverage:** Coffee, Tea
