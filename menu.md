@@ -2,6 +2,7 @@
 
 #### **Friday**
 #####- **Dinner**
+
 	- **Main:** Grilled Sausages
 	- **Sides:** Baked Potatoes with Butter and Sour Cream, Grilled Vegetables
 	- **Dessert:** Campfire S'mores
