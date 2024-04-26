@@ -1,15 +1,13 @@
 ### **RHF Weekend Menu**
 
 #### **Friday**
-#####- **Dinner**
-
+- **Dinner**
 	- **Main:** Grilled Sausages
 	- **Sides:** Baked Potatoes with Butter and Sour Cream, Grilled Vegetables
 	- **Dessert:** Campfire S'mores
 
 #### **Saturday**
 - **Breakfast**
-  
   - **Main:** Bagels and Toast
   - **Sides:** Fresh Fruit
   - **Beverage:** Coffee
@@ -35,6 +33,7 @@
   - **Main:** Fish Fry
   - **Sides:** Potato Salad
   - **Dessert:** Brownies
+
 - **Dinner**
   - **Main:** Pasta
   - **Sides:** Garlic Bread, Caesar Salad
