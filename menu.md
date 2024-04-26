@@ -12,10 +12,12 @@
 	- **Sides:** Fresh Fruit
 	- **Beverage:** Coffee
 
+
 - **Lunch**
 	- **Main:** Fish Tacos (catch of the day)
 	- **Sides:** Coleslaw, Tortilla Chips with Salsa and Guacamole
 	- **Dessert:** Chocolate Chip Cookies
+
 
 - **Dinner**
 	- **Main:** Grilled Ribeyes
@@ -27,11 +29,13 @@
 	- **Main:** Bagels and Toast
 	- **Sides:** Yogurt, fresh fruit
 	- **Beverage:** Coffee, Tea
+
 	
 - **Lunch**
 	- **Main:** Fish Fry
 	- **Sides:** Potato Salad
 	- **Dessert:** Brownies
+
 
 - **Dinner**
 	- **Main:** Pasta
