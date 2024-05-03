@@ -1,0 +1,5 @@
+to create a new page using markdown for the body, use the following steps:
+
+1. create your markdown file
+2. run: python3 -m markdown markdownFilename.md -f new-filename.html 
+3. run: cat html-builder1.txt new-filename.html html-builder2.txt > new-page-name.html
