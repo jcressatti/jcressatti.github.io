@@ -1,0 +1,53 @@
+##Anglers
+
+Justin (C)
+"Crazy Casts"
+What he lacks in loyalty he more than makes up for in treachery. This veteran angler revels in the rain and walleye chop. Rumours of RHF4LIFE association follow him like a pike stalking its prey.
+
+Steve (C)
+"Prinç dal Pês"
+The reigning Prince of Pickerel, with an eye watering 33 walleye caught in 2023 and number 1 overall ranked angler (outscoring 3rd and 4th place 3:1). A modern day Shackleton, this fearless leader will be first on the water searching the depths for monsters below.
+
+Adam
+“The Professor” 
+Powered by potatoes and Guinness, this certified marine biologist hasn’t touched a fish since grad school. Need to estimate population size? He’s your man.
+
+Frankie
+“Finesse”
+Has yet to touch a fish, though somehow can’t help but keep catching them. All he needs is a little liquid encouragement and a friendly hand to open his spool, and this angler will be groaning with dismay as he hauls up yet another catch.
+
+Jonny
+“Let Him Cook”
+Once a broken man on a Halifax peer, now Jon’s the b’y that catches the fish and brings them home to Liza. Sober enough to know what he’s doing and drunk enough to really enjoy it, you’ll find Jon cruising the seas for American gold sipping on ice cold beers. The reigning Walleye King, with a current record setting 59 cm catch in 2023.
+
+Joe Fisch
+"The Pike Slayer"
+“You up?” A common message to receive from Joe looking for a captain. In between slaying northern pikes, this angler likes to pick his spots, as he’s been known to enjoy feasting on walleye during early morning power hours.
+
+Mauro
+“Coffee is for Closers”
+Mauro comes from downtown. ABC, Always Be Catching. That's his motto. Rumour has it this angler's alarm is set to go off every morning before sunrise to Alec Baldwin’s speech from Glengarry Glen Ross. Keep your sunglasses on in this boat, with double rods and backhand casts, fish and lures will be flying! A founding member of RHF and half of the RHF4LIFE tag team duo.
+
+Michael
+“The Magic”
+From high up on the Italian alps to the rolling green hills of Nimbin, traversing the devil’s staircase along the way, this angler has travelled far and wide in search of ol marble eye jack. Known for his tight knots and even tighter lines, a magician with his hands, Mike thrives among the mist on the open fresh water seas.
+
+Rob
+“Le Chifre” aka Big Poppa Pump
+An instant success since he burst onto the RHF scene, climbing the ranks to 3rd place in 2023. Was it his algorithm that gave him his edge, or his ability to see through the noise and ignore any advice offered on the ride up that lead to his triumph? We may never know. All we know is that there's a thirty-three and a third chance of survival, the numbers don't lie, and they spell disaster for you, walleye!
+
+Ryan (C)
+"The Nereus Grappler"
+Rock Hard's very own Old Man of the Sea. Equipped with his customary kynodesme you won’t catch this captain juicing. Running clean since 2019, a founding member of RHF and half the duo of RHF4LIFE, a journey on Ryan’s boat harkens back to the time of Odysseus wandering the seas encountering gods along the way.
+
+Joey (C)
+"Captain Morgan"
+This swashbuckling privateer has spent his recent years raiding the Spanish Main St. Now sailing the sweet water seas, you’ll often find this captain's boat singing songs of cheer while patrolling the shallows for green and gold treasures lurking below.
+
+Shawn
+"Just the Tip-Up"
+What better hunter of fish is there than a shark? A trained lawyer, this angler knows all about the art of presentation. Never without his trusty murder gloves, Shawn basks in the sweet smell of freshly harvested entrails, an expert fillet-er, brandishing knives as sharp as is his wit.
+
+Tim
+“Melba”
+After an impressive Rock Hard™ performance at a Carota Invitational Golf Tournament, Tim was successfully recruited into the RHF universe to target the illustrious gravel lizard. An experienced catfisher, this master craftsman and silver surfer has brought his talents to the Great White North in pursuit of love and untold fishes.
